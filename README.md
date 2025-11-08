@@ -1,4 +1,25 @@
+!!@!@!@@!@Another thing - i did tried bypass the webgl thing for two days straight --- 
+as for __why?__ because anti detect browsers are literally made for ebay or amazon , or other sites 
+
+and I cannt -- create a mobile app for soyjak?
+
+the idea is so i can post on soyjak using a windows 95 computer --- using a reverse-proxy idea --- 
+where the windows 95 machine gets supported api access or translated stuff into soyjak -- using a webbrowser working for windows 95  -- 
+
+like the whole windows 95 frontend --- incloding with transpiling it into stuff it can read --- including  everything that comes to mind 
+
+!@#@#@#
+
+anyways what you gonna do -- give love and support for the soyjak jannies 
+literally jannies -- they just cry over the most retarded stuff 
+the pph is all reposted spam 
+
+i hope they make it hard to post honestly i want this site to die -- like 4chan is slowly dying --- and yes i (made a webapp) 4var on 4chan harder than i do nowaday 
+
 If you want you can send me an email ----
+
+__I will success and you will be hopeless__
+
 
 <img width="1508" height="335" alt="image" src="https://github.com/user-attachments/assets/a62bbe3d-673b-436c-856b-0e870e11c1e4" />
 
