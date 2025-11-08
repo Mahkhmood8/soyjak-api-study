@@ -1,3 +1,60 @@
+## ⚠️⚠️⚠️⚠️
+## ⚠️⚠️⚠️⚠️
+## ⚠️⚠️⚠️⚠️
+DISCLAIMER , i am not affiliited with LETO , i hate him --- and i blocked him myself 
+
+and second i just say stuff just to trick the jannies and put stress under them --- 
+i just hate how the site went into downhill 
+
+I already own around 80pph in 4chan , using llm chatbots --- 
+soyjak is next , for an educational thing 
+
+i myself i am a south african schizo living in israel,, and i have a gout attack recently --- 
+i am fachinated by, causing stress to jannies 
+
+but yeah -- pretending, and lieing --- like the stuff claim by quete is untrue 
+
+he declares stuff I did not do ---
+
+and yes I spent over 11hours -- and so people spend time on CSGO or other videos ,,, 
+its a game for me
+
+What they gonna do ? they are powerless --- I already have a very sabtle bot working on mobile emulators -- this other project is unnoticable to the jannies 
+
+What the jannies gonna do ? 
+
+**This is a protest to the jannies , your captcha sucks --- it so hard for a user to solve , and what are you trying to prevent the site from gaining users??? even an ANONCHAN like me who been on board for years**
+
+the captchas are shit , and if you wanna stop me enable captchas per post ,, this is what I want, this is what will make me stop
+--- I wanna make it harder to post --- because the site sucks --- and the pph by normal users shall drop 
+
+
+SAYING I AM AFFLIATED WITH LETO ? 
+while i didnt talked to him in years -- 
+
+plus i found him weird and ghosted his messages all the time 
+
+but yeah -- i think he had a "4chan B& evade serivice" this was my idea -- to try and monitize it a bit 
+
+
+**Why admit you lie, and say you gonna flood them with 'p ,, just to cause them stress and demoralise them --- so the janny wont want to go on the modpanel anymore **
+
+Also yeah fuck the jannies , fuck the soyjak 
+
+
+speaking of, the only one evading the law is SoyQuote,, 
+he is violeting my rights, as a british citizen 
+(as per my south african citizenship too)
+suig my voorhuid
+
+**also i am not jewish ,,
+christ is king 
+**
+<img width="707" height="922" alt="image" src="https://github.com/user-attachments/assets/add4d165-25b7-4fa7-b526-8504de35a279" />
+
+## ⚠️⚠️⚠️⚠️
+## ⚠️⚠️⚠️⚠️
+
 # Soyjak Thread Automation Research Project
 
 ## ⚠️ LEGAL DISCLAIMER & TERMS OF USE
