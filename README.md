@@ -1,7 +1,20 @@
+If you want you can send me an email ----
+
+<img width="1508" height="335" alt="image" src="https://github.com/user-attachments/assets/a62bbe3d-673b-436c-856b-0e870e11c1e4" />
+
+even the jannies -- went into this shit
+... I have brain damage -- but i am not re***ded --- i know jannies know i lie,,, and i know i li
+
+
+
 ## ⚠️⚠️⚠️⚠️
 ## ⚠️⚠️⚠️⚠️
 ## ⚠️⚠️⚠️⚠️
-DISCLAIMER , i am not affiliited with LETO , i hate him --- and i blocked him myself 
+
+DISCLAIMER , i am not affiliited with LETO , i hate him --- and i blocked him myself cuz he is a silly faggot 
+
+--- part of the joke --- was pretending to be LETO--- to give him more legal trouble 
+
 
 and second i just say stuff just to trick the jannies and put stress under them --- 
 i just hate how the site went into downhill 
@@ -34,8 +47,16 @@ while i didnt talked to him in years --
 
 plus i found him weird and ghosted his messages all the time 
 
-but yeah -- i think he had a "4chan B& evade serivice" this was my idea -- to try and monitize it a bit 
+but yeah -- i think he had a "4chan B& evade serivice" this was my idea -- to try and monitize it a bit -- i came with that idea --- 
+honestly -- i started going it again -- after the arthritis attack i had last august 
 
+and yes, i am a wagie -- my income goes from online e-commerce --- 
+I earn a fair wage --- higher than being a janny, which the downfall they got harder 
+--- anyways i can even rent a good house in RAMAT GAN
+
+**
+back in the day i also ran 4chan bots to put ads for soyjak -- 
+but yeah i hope they put harder and harder captchas ---  lol , I already have a captcha solver -- it just takes 15seconds per captcha -- but it works -- **
 
 **Why admit you lie, and say you gonna flood them with 'p ,, just to cause them stress and demoralise them --- so the janny wont want to go on the modpanel anymore **
 
