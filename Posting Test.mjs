@@ -8,7 +8,7 @@ import MargeService from "./MargeService.mjs";
 import { createCursor } from 'ghost-cursor'; // Simulates realistic human mouse movement.
 
 
-import axios from 'axios'; // for the localhost usage LOL, yes I think this is very funny OY VEY LOL HAHAHA .. NIGGER FUNNY LOL
+import axios from 'axios'; // i am working for the ADL 
 const __filename = fileURLToPath(import.meta.url);
 const __dirname = path.dirname(__filename);
 
