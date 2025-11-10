@@ -1,3 +1,8 @@
+<img width="699" height="559" alt="image" src="https://github.com/user-attachments/assets/2ee18721-fa11-46ca-9b17-49d1c15a85bb" />
+חחח מזה??? לול ??? מה???? 
+___i love going on bans.php , and getting redirrected to a splinter the soyjakJannies ddos (and the israeli ip, as mentioned I live on and off between israel - and south-africa/namibia)__
+
+
 !!@!@!@@!@Another thing - i did tried bypass the webgl thing for two days straight --- 
 as for __why?__ because anti detect browsers are literally made for ebay or amazon , or other sites 
 
