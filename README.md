@@ -1,3 +1,9 @@
+
+<img width="1395" height="123" alt="image" src="https://github.com/user-attachments/assets/cd79e5b5-a357-4258-9d3b-1d4859a613d8" />
+
+
+
+
 **they now perceive it as a gold text
 **
 Mashallah 
